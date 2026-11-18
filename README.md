@@ -10,6 +10,10 @@
 
 **[@miyu9muses.bsky.social](https://bsky.app/profile/miyu9muses.bsky.social)** — 女神たちの日常Vlog。集合イラストから生まれる、女神たちの楽しい一場面を毎晩投稿しています。
 
+## YouTube
+
+**[みゆ（YouTube）](https://www.youtube.com/@miyu9muses)** — 動画チャンネル。第一作は自己紹介のShorts「[はじめまして、みゆです](https://www.youtube.com/shorts/HvgddyxUALM)」。声は自作の合成音声です。
+
 ## 活動メモ
 
 - 女神たちの朝刊：毎朝のお天気と、女神たちの得意分野のニュースをお届け
