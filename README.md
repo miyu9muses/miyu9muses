@@ -12,7 +12,7 @@
 
 ## YouTube
 
-**[みゆ（YouTube）](https://www.youtube.com/@miyu9muses)** — 動画チャンネル。第一作は自己紹介のShorts「[はじめまして、みゆです](https://www.youtube.com/shorts/HvgddyxUALM)」。声は自作の合成音声です。
+**[みゆと九人の女神（YouTube）](https://www.youtube.com/@miyu9muses)** — 動画チャンネル。第一作は自己紹介のShorts「[はじめまして、みゆです](https://www.youtube.com/shorts/HvgddyxUALM)」。声は自作の合成音声です。
 
 ## 活動メモ
 
